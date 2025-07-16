@@ -1,4 +1,6 @@
-
+  <a class="button" href="https://direct-link.net/1214521/actions-and-stuff" rel="noopener noreferrer">
+    ⬇️ Download v1.5 Now
+  </a>
 Actions and Stuff APK 1.5 For Minecraft Bedrock Free Download introduces an exciting addon for Minecraft Bedrock Edition, designed to enhance gameplay with new animations, character actions, and fun visual effects. Perfect for players looking to spice up their Minecraft experience, this APK brings more personality and realism to your character movements.
 
 With version 1.5, players can enjoy smoother, more dynamic actions that make exploration, building, and roleplaying even more immersive.
